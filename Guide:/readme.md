@@ -1,0 +1,2 @@
+- [How To Remove Broken Bolt In Recessed Hole - The Worst Of The Worst Made Easy](https://youtu.be/YqFLoq567zk)
+- [How to Remove IMPOSSIBLE Broken Bolts (The Deep Hole Trick)](https://youtu.be/7Wwy2-aRQZw)
